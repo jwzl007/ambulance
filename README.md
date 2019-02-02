@@ -1,2 +1,2 @@
 # ambulance
-faint, rescue
+foolish human
